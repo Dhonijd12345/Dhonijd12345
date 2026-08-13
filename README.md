@@ -128,7 +128,7 @@ I'm interested in opportunities related to:
 
 📧 **Email:** [Email: dhonij380@gmail.com]
 
-💼 **LinkedIn:** [Connect with me on LinkedIn](https://www.linkedin.com/in/dhoni-j-7b73b92a2/)
+💼 **LinkedIn:** [Connect with me on LinkedIn](www.linkedin.com/in/nikile-eines-dhoni-j-7b73b92a2)
 
 🐙 **GitHub:** [@Dhonijd12345](https://github.com/Dhonijd12345)
 
